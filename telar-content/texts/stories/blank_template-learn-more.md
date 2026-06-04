@@ -2,6 +2,6 @@
 title: "Learn more"
 ---
 
- The range of direct and indirect strategies used were revealed by the Spanish records and the study of archaeological records. Relations between the Incan ruler and the different cultural groups had to be tailored to the existing organizations and interests of the provinces and the central powers. The different existing scales of control in the production of materials and food by the provinces and the central power.![The Inca Empire's expansion according to John Howland Rowe in his "absolute chronology", developed in 1944–1945](https://meganleverett.github.io/potato_urpu/iiif/objects/incamap/incamap.jpg)
- 
- 
+Urpu is a name specific to the Incas, although this vessel has historically been referred to by other names, including aryballos and Machas. The form of an urpu has a conical base, a wide body joined to a narrow neck, and a trumpet-flared lip. The rounded handles and zoomorphic lug on the neck are also characteristic of this Inca ceramic type. The two small holes under the lip of the vessel were adorned with dangling metal ornamentation, adding movement and opulence to this ceremonial vessel. There would have been a small hole dug in the ground to allow for the Urpu to stand upright on its conical base.
+[https://skfb.ly/pJXRU](https://skfb.ly/pJXRU) 
+
