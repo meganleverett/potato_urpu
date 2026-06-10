@@ -2,5 +2,5 @@
 title: "Go deeper"
 ---
 
-Within the actual practice, foreign pottery and pottery of those conquered may have been attributed to the Incan practice of the displacement and relocation of entire groups around the empire due to records of different pottery styles showing up. Additionally, the abundance of vessels in the empire and of the processes made using fire techniques and local known practices give this high level of importance on those who create the vessels shown through the syncretism of the Chimus, the long time rivals of the Incas, and the Incan elements once overtaking the Chimus.![Museo Larco; Chimu Inca; Room 3, Vitrine 26](https://meganleverett.github.io/potato_urpu/iiif/objects/chimuincavessel/chimuincavessel.jpg)
-
+Generally, Incan art differs from other Andean traditions in that it is largely non-figurative. The anatomy of an Urpu does have certain distinguishing features that do have parallels with the human form and fashion traditions. For example, the two small holes on each side of the Urpu's mouth are used to hang earrings from. This infuses the vessel with a sense of life, movement, and presence. In the example seen below, the geometric pattern resembles the square t'oqapu patterns found on lavish camalid wool & cotton tunics, worn only by the most primary elites of Incan society.![objects of empire urpu](https://meganleverett.github.io/potato_urpu/iiif/objects/objectsofempireurpu/objectsofempireurpu.jpg)
+Tamara Bray, _Objects of Empire: The Ceramic Tradition of the Imperial Inca State_
