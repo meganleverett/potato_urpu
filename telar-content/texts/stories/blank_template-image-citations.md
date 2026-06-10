@@ -12,7 +12,7 @@ title: "Image Citations"
  
 5. Urpu, 1300-1450 CE, Ceramic with brown and white slip, South America, North Coast, Peru, Inca, Chimú, AD&A Museum, Santa Barbara, 1968.64 (video from Megan Leverett)
  
-6. *Map of Ancient Andean Cultures*. \[n.d.\]. https://jstor.org/stable/community.13755372.
+6. _Map of Ancient Andean Cultures_ .n.d.https://jstor.org/stable/community.13755372.
  
 7. ChimúInca, 1300 AD – 1532 AD, Ceramic, Cultures of Ancient Peru, Peruvian Northern Coast, Museo Larco, ML031671.
  
